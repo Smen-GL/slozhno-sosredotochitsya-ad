@@ -1,1 +1,1 @@
-https://github.com/LapFilll/slozhno-sosredotochitsya-ad
+https://github.com/Smen-GL/slozhno-sosredotochitsya-ad
